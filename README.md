@@ -2,7 +2,7 @@
 
 SAVE OUR SEAS!🐟🐟 
 Coordinate what happens in your sea
-- How will you control illegal fishing, and oil dumping?
+- How will you control illegal fishing, bilge water and ballast dumping?
 - What effect will your actions have on tourism, wildlife, and economy
 
 Teaching aims:
